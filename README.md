@@ -1,0 +1,1 @@
+# informa-o-de-escorpi-o
